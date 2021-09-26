@@ -2,6 +2,8 @@
 Random Playlists from XandraXerosStreams
 
 
+### 09/25/2021
+
 NP: CLAVVS - Throats
 
 LP: Puscifer - Lighten Up Francis (JLE Dub Mix)
@@ -70,9 +72,22 @@ NP: Ashnikko - Slumber Party (Kenzi Fires Slumberlingus mix?)
     
   Mascarpone - The Smoking Chicken
   
+   VNV Nation - When Is The Future?
   
-  
-  
+  Cruxshadows - Afterall
 
+Kim Petras - There Will Be Blood (Mr. K mix)
+
+ Mosh - Taurus
+ 
+ HVDES - Wasteland
+ 
+  Night Club Bad Girl
+  
+  XYXXYYYXXYX - 556
+  
+   Danny Blu - Love Me Bad
+
+Microwaved - Obsession
  
  
