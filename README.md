@@ -1,5 +1,6 @@
-# XandraXeroPlaylists
-Random Playlists from XandraXerosStreams
+# Xero Playlist
+
+Random Playlists from Xero Stream(s)
 
 
 ### 09/25/2021
