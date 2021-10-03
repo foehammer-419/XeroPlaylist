@@ -116,4 +116,17 @@ Microwaved - Obsession
  
  Static Panic - Sean
  
+ shnikko - Slumber Party (ft Princess Nokia 
+NonbinaryPride
+ PLAH mix)
+ 
+  INXS - Mediate (Roderick Jayne mix)
+  
+  NightCLub - Bad Girl
+ 
+  Dillion Frances - Not Butter
+
+Justice - Helix (Gessaffellstien mix)
+
+Linkin Park - Numb (in the 80's)
  
