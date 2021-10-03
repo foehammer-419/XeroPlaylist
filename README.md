@@ -92,3 +92,26 @@ Kim Petras - There Will Be Blood (Mr. K mix)
 Microwaved - Obsession
  
  
+ 
+ # 10/02/2021
+ 
+ ### Circuit Witch Set
+ 
+ "Sunglasses At Night (Extended Mix)" by Alok and Hollaphonic
+ 
+ 
+ ### Xandra Set
+ 
+ Todrick Hall - Both
+ 
+ Rita Ora - Girls ft Chari XCX & Bebe Rexa)
+ 
+ Fatigue - Bury It
+ 
+ Monster Monster - Street Fighter (Ryu's theme rmx)
+ 
+ Arianna Grande - Focus
+ 
+ the Weeknd - Pray for Me
+ 
+ Static Panic - Sean
